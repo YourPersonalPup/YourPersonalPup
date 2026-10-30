@@ -11,9 +11,7 @@ Call me Drawn or Wynn.
   ⋆☀︎.My birthday. Its in 1/7, remember that, my dear friends. ꫂ❁
 ![Apafem](https://img.shields.io/badge/Apafem-F7CE5A?style=for-the-badge)
 
-𑣲Main community: Typology.
-
-Fav mycts: Wifies & Rejoice𑁤
+𑣲Main community: Typology.𑁤
 <img width="24" height="55" alt="1000022788" src="https://github.com/user-attachments/assets/41764106-7663-44e7-a653-c7a5fdd0f0bf" />
 <img width="22" height="54" alt="1000022787" src="https://github.com/user-attachments/assets/79961fba-94f6-4274-ad38-d90d66402a6e" />
 
