@@ -8,10 +8,10 @@
 Call me Drawn or Wynn.
 <img width="736" height="191" alt="1000022708" src="https://github.com/user-attachments/assets/d88ff303-a7e1-4bef-8ec8-a5c78d94c056" />
 
-  ⋆☀︎.My birthday. Its 1/7, remember that, my dear friends. ꫂ❁
+  ⋆☀︎.My birthday. Its in 1/7, remember that, my dear friends. ꫂ❁
 ![Apafem](https://img.shields.io/badge/Apafem-F7CE5A?style=for-the-badge)
 
-𑣲Main fd: UU SMP.
+𑣲Main community: Typology.
 
 Fav mycts: Wifies & Rejoice𑁤
 <img width="24" height="55" alt="1000022788" src="https://github.com/user-attachments/assets/41764106-7663-44e7-a653-c7a5fdd0f0bf" />
