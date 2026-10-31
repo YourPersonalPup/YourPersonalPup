@@ -13,14 +13,15 @@
 
 𓉸ྀི Main community: Typology,, 
 <img width="67" height="67" alt="1000023033" src="https://github.com/user-attachments/assets/e90a5a77-dd6a-44f9-afe8-450f322025bb" />
-.ᐟWow look,, its a mini me,,, 👀👀👀
+.ᐟWow look,, its a mini me?? Pure aura,,, 👀👀👀
 ⸝⸝Cre goes straight to @Matrix⋆˚࿔
 
 ✚˚. ᵎᵎ Basic DNI criteria, ESPECIALLY THOSE UNBELIEVABLY RUDE PEOPLE, PLEASE STOP SPAMMING 'FAHH' IN MY FACE,, 𓏵
 
 ✧˚ -- We romanticize the stars, but forget the dark is what made them visible, --⋆｡˚
 
-<img width="800" height="291" alt="1000023042" src="https://github.com/user-attachments/assets/a0c9b394-6e97-495d-864e-889cf11185f6" />
+<img width="800" height="266" alt="1000023051" src="https://github.com/user-attachments/assets/0dbfa04b-39b9-4a3a-af3e-14b262e15448" />
+
 
 <p align="center">
 <img width="734" height="168" alt="1000023045" src="https://github.com/user-attachments/assets/9fdab72c-3ac1-404f-9ea8-9da59bc65ffb" />
