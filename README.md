@@ -20,7 +20,7 @@
 
 ✧˚ -- We romanticize the stars, but forget the dark is what made them visible, --⋆｡˚
 
-<img width="800" height="266" alt="1000023051" src="https://github.com/user-attachments/assets/0dbfa04b-39b9-4a3a-af3e-14b262e15448" />
+<img width="800" height="150" alt="1000023051" src="https://github.com/user-attachments/assets/0dbfa04b-39b9-4a3a-af3e-14b262e15448" />
 
 
 <p align="center">
