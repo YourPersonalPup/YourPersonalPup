@@ -1,18 +1,23 @@
 <div align="center"
   
-┌──────── 🌻 ────────┐  
-![Boundary Breaker DNI](https://img.shields.io/badge/Boundary%20Breaker%20DNI-𖤓-000000?style=flat&labelColor=000000)
+<img width="734" height="168" alt="1000023046" src="https://github.com/user-attachments/assets/30f32746-c691-4852-82e2-4bc74b2cfd8d" />
 
-## 𑁍ࠬܓI am a lover with or without a lover, because love is who I am, not who I'm with.
+.𖥔 ݁ ˖ Greetings, I'm Drawn, Or you could call me Wynn as well,⊹ ࣪ ˖
 
-Call me Drawn or Wynn.
-<img width="736" height="191" alt="1000022708" src="https://github.com/user-attachments/assets/d88ff303-a7e1-4bef-8ec8-a5c78d94c056" />
+![APAFEM](https://img.shields.io/badge/APAFEM-FFFFFF?style=flat&labelColor=FFFFFF)
+![Boundary Breaker DNI](https://img.shields.io/badge/Boundary%20Breaker%20DNI-⚠-000000?style=flat&labelColor=000000)
+![468](https://img.shields.io/badge/468-000000?style=flat)
+![4w5](https://img.shields.io/badge/4w5-FFFFFF?style=flat)
 
-  ⋆☀︎.My birthday. Its in 1/7, remember that, my dear friends. ꫂ❁
-![Apafem](https://img.shields.io/badge/Apafem-F7CE5A?style=for-the-badge)
+‎ . ݁⋆ ۶Introvert,, sx/spৎ ݁˖ . ݁
 
-𑣲Main community: Typology.𑁤
+𓉸ྀི Main community: Typology,, 
+<img width="67" height="67" alt="1000023033" src="https://github.com/user-attachments/assets/e90a5a77-dd6a-44f9-afe8-450f322025bb" />
+.ᐟWow look,, its a mini me,,, 👀👀👀
+⸝⸝Cre goes straight to @Matrix⋆˚࿔
 
- <img width="500" height="181" alt="1000022706" src="https://github.com/user-attachments/assets/adcf015a-1e33-4d58-9653-aca90990a7a3" />
- 
-└──────── 🌻 ────────┘
+✚˚. ᵎᵎ Basic DNI criteria, ESPECIALLY THOSE UNBELIEVABLY RUDE PEOPLE, PLEASE STOP SPAMMING 'FAHH' IN MY FACE,, 𓏵
+
+✧˚ -- We romanticize the stars, but forget the dark is what made them visible, --⋆｡˚
+
+<img width="734" height="168" alt="1000023045" src="https://github.com/user-attachments/assets/9fdab72c-3ac1-404f-9ea8-9da59bc65ffb" />
