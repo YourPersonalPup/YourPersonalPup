@@ -12,7 +12,7 @@
 ‎ . ݁⋆ ۶Introvert,, sx/spৎ ݁˖ . ݁
 
 𓉸ྀི Main community: Typology,, 
-<img width="67" height="67" alt="1000023033" src="https://github.com/user-attachments/assets/e90a5a77-dd6a-44f9-afe8-450f322025bb" />
+<img width="50" height="50" alt="1000023033" src="https://github.com/user-attachments/assets/e90a5a77-dd6a-44f9-afe8-450f322025bb" />
 .ᐟWow look,, its a mini me?? Pure aura,,, 👀👀👀
 ⸝⸝Cre goes straight to @Matrix⋆˚࿔
 
