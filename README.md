@@ -9,7 +9,7 @@
 ![468](https://img.shields.io/badge/468-000000?style=flat)
 ![4w3](https://img.shields.io/badge/4w3-FFFFFF?style=flat)
 
-‎ . ݁⋆ ۶Introvert,, sx/spৎ ݁˖ . ݁
+‎ . ݁⋆ ۶Introvert,, sx/soৎ ݁˖ . ݁
 
 𓉸ྀི Main community: Typology,, 
 <img width="50" height="50" alt="1000023033" src="https://github.com/user-attachments/assets/e90a5a77-dd6a-44f9-afe8-450f322025bb" />
