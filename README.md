@@ -1,27 +1,30 @@
 <p align="center">
-<img width="734" height="168" alt="1000023048" src="https://github.com/user-attachments/assets/0f35da18-66c8-4754-8460-9f7c61f27ea0" />
+  ╭━ ⋅𖥔⋅ ━━✶━━ ⋅𖥔⋅ ━╮
+<img width="735" height="134" alt="1000023203" src="https://github.com/user-attachments/assets/e6c79f00-f1a7-46d0-9938-fe366e1e7447" />
 
 <div align="center">
-.𖥔 ݁ ˖ Greetings, I'm Drawn, Or you could call me Wynn as well,⊹ ࣪ ˖
+<img width="20" height="20" alt="1000023208" src="https://github.com/user-attachments/assets/3a4c41d6-97ff-48b0-834b-e0389fd4cbd1" />
+.𖥔 ݁ ˖ Greetings, I'm Drawn, Or you could call me Wynn as well,⊹ ࣪ ˖ <img width="20" height="20" alt="1000023209" src="https://github.com/user-attachments/assets/56d29d31-6982-44d1-99e0-0f3681ac27bb" />
 
-![APAFEM](https://img.shields.io/badge/APAFEM-FFFFFF?style=flat&labelColor=FFFFFF)
-![Boundary Breaker DNI](https://img.shields.io/badge/Boundary%20Breaker%20DNI-⚠-000000?style=flat&labelColor=000000)
-![468](https://img.shields.io/badge/468-000000?style=flat)
-![4w3](https://img.shields.io/badge/4w3-FFFFFF?style=flat)
+![APAFEM](https://img.shields.io/badge/APAFEM-3B5894?style=flat)
+![Boundary Breaker DNI](https://img.shields.io/badge/Boundary%20Breaker%20DNI-⚠-040234?style=flat&labelColor=1E235B)
+![468](https://img.shields.io/badge/468-1E235B?style=flat)
+![4w3](https://img.shields.io/badge/4w3-ACC6C7?style=flat)
 
 ‎ . ݁⋆ ۶Introvert,, sx/spৎ ݁˖ . ݁
 
-𓉸ྀི Main community: Typology,, 
-<img width="50" height="50" alt="1000023033" src="https://github.com/user-attachments/assets/e90a5a77-dd6a-44f9-afe8-450f322025bb" />
-.ᐟWow look,, its a mini me?? Pure aura,,, 👀👀👀
-⸝⸝Cre goes straight to @Matrix⋆˚࿔
+༘⋆Main community: Typology(Maybe Genshin since my sis asked me to download Genshin again heh!1!),,⋆˚࿔
 
-✚˚. ᵎᵎ Basic DNI criteria, ESPECIALLY THOSE UNBELIEVABLY RUDE PEOPLE, PLEASE STOP SPAMMING 'FAHH' IN MY FACE,, 𓏵
+✚˚. ᵎᵎ Basic DNI criteria, ESPECIALLY THOSE UNBELIEVABLY RUDE PEOPLE, PLEASE STOP SPAMMING 'FAHH' IN MY FACE,,ـــــــــﮩ٨ـ
 
-✧˚ -- We romanticize the stars, but forget the dark is what made them visible, --⋆｡˚
+ 𑣲ᢉ𐭩Im rlly shy so u need 2 int first(╥ ᴗ ╥),,𓏵
+
+✧˚ We romanticize the stars, but forget the dark is what made them visible, ⋆｡˚
 
 
-<p align="center">
-<img width="734" height="168" alt="1000023045" src="https://github.com/user-attachments/assets/9fdab72c-3ac1-404f-9ea8-9da59bc65ffb" />
+<img width="736" height="155" alt="1000023202" src="https://github.com/user-attachments/assets/1ac876d5-0c68-41e7-b3a4-ad025b03e4c7" />
+
+
+╰━ ⋅𖥔⋅ ━━✶━━ ⋅𖥔⋅ ━╯
 
 </div>
