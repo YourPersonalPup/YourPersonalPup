@@ -1,10 +1,12 @@
 <p align="center">
-  ╭━ ⋅𖥔⋅ ━━✶━━ ⋅𖥔⋅ ━╮
+  <img width="20" height="20" alt="1000023208" src="https://github.com/user-attachments/assets/a49b338c-c122-4f9a-bbe1-cf8c747c7722" />
+╭━ ⋅𖥔⋅ ━━✶━━ ⋅𖥔⋅ ━╮<img width="20" height="20" alt="1000023209" src="https://github.com/user-attachments/assets/314af123-fa23-474e-b7be-f6c07b624351" />
+
 <img width="735" height="134" alt="1000023203" src="https://github.com/user-attachments/assets/e6c79f00-f1a7-46d0-9938-fe366e1e7447" />
 
 <div align="center">
-<img width="20" height="20" alt="1000023208" src="https://github.com/user-attachments/assets/3a4c41d6-97ff-48b0-834b-e0389fd4cbd1" />
-.𖥔 ݁ ˖ Greetings, I'm Drawn, Or you could call me Wynn as well,⊹ ࣪ ˖ <img width="20" height="20" alt="1000023209" src="https://github.com/user-attachments/assets/56d29d31-6982-44d1-99e0-0f3681ac27bb" />
+
+.𖥔 ݁ ˖ Greetings, I'm Drawn, Or you could call me Wynn as well,⊹ ࣪ ˖
 
 ![APAFEM](https://img.shields.io/badge/APAFEM-3B5894?style=flat)
 ![Boundary Breaker DNI](https://img.shields.io/badge/Boundary%20Breaker%20DNI-⚠-040234?style=flat&labelColor=1E235B)
