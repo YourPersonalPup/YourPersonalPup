@@ -21,7 +21,7 @@
 
 ༘⋆Main community: Typology(Maybe Genshin since my sis asked me to download Genshin again heh!1!),,⋆˚࿔
 
-✚˚. ᵎᵎ Basic DNI criteria, ESPECIALLY THOSE UNBELIEVABLY RUDE PEOPLE, PLEASE STOP SPAMMING 'FAHH' IN MY FACE,,ـــــــــﮩ٨ـ
+✚˚. ᵎᵎ Basic DNI criteria, ESPECIALLY THOSE UNBELIEVABLY RUDE PEOPLE, PLEASE STOP SPAMMING 'FAHH' INTO MY FACE,,ـــــــــﮩ٨ـ
 
  𑣲ᢉ𐭩Im rlly shy so u need 2 int first(╥ ᴗ ╥),,𓏵
 
@@ -32,6 +32,8 @@
 <img width="736" height="155" alt="1000023202" src="https://github.com/user-attachments/assets/1ac876d5-0c68-41e7-b3a4-ad025b03e4c7" />
 
 
-╰━ ⋅𖥔⋅ ━━✶━━ ⋅𖥔⋅ ━╯
+<img width="20" height="20" alt="1000023208" src="https://github.com/user-attachments/assets/3f96189a-25e0-4bb1-8056-157e2f0aa06c" />
+╰━ ⋅𖥔⋅ ━━✶━━ ⋅𖥔⋅ ━╯<img width="20" height="20" alt="1000023209" src="https://github.com/user-attachments/assets/8c6eb489-756d-4953-a345-ffab7ca3b834" />
+
 
 </div>
