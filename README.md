@@ -25,7 +25,7 @@
 ✚˚. ᵎᵎ Basic DNI criteria, ESPECIALLY THOSE UNBELIEVABLY RUDE PEOPLE, PLEASE STOP SPAMMING 'FAHH' INTO MY FACE,,ـــــــــﮩ٨ـ<img width="369" height="67" alt="1000023257" src="https://github.com/user-attachments/assets/ee8d28b9-a376-4091-8755-fc9c6e9d8042" />
 
 
- 𑣲ᢉ𐭩Im rlly shy so u need 2 int first(╥ ᴗ ╥),,𓏵
+ 𑣲ᢉ𐭩Im rlly shy so u need 2 int first(╥ ᴗ ╥),,Or I will when I'm feelin bold,,𓏵
 
 ✧˚ We romanticize the stars, but forget the dark is what made them visible, ⋆｡˚ 
 
