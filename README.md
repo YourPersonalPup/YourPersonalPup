@@ -17,7 +17,7 @@
 
 ‎ . ݁⋆ ۶Introvert,, sx/spৎ ݁˖ . ݁
 
-<img width="736" height="336" alt="1000023255" src="https://github.com/user-attachments/assets/854c963c-a84e-4646-9de5-fbeccf1f3e00" />
+<img width="735" height="356" alt="1000023260" src="https://github.com/user-attachments/assets/6c104c67-2977-4dde-9004-26a67ef4373a" />
 
 
 ༘⋆Main community: Typology(Maybe Genshin since my sis asked me to download Genshin again heh!1!),,⋆˚࿔
@@ -29,7 +29,7 @@
 
 ✧˚ We romanticize the stars, but forget the dark is what made them visible, ⋆｡˚ 
 
-˗ˏˋ⌖Ily Flins but Alyosha r growing on me>﹏<་⁺₊♡ <img width="67" height="67" alt="1000023256" src="https://github.com/user-attachments/assets/9d43e358-0f33-45d6-acb9-1c78790420c0" />
+˗ˏˋ⌖Ily Flins but Alyosha r growing on me>﹏<་⁺₊♡ <img width="36" height="36" alt="1000023256" src="https://github.com/user-attachments/assets/9d43e358-0f33-45d6-acb9-1c78790420c0" />
 
 <img width="736" height="171" alt="1000023232" src="https://github.com/user-attachments/assets/97959621-50d3-4a76-b614-1521328a3322" />
 
