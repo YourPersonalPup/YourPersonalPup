@@ -3,7 +3,7 @@
 ━ ⏤͟͟͞͞𖥔⋅ ━━✶━━ ⋅𖥔⋅ ━╮
   <img width="20" height="20" alt="1000023209" src="https://github.com/user-attachments/assets/314af123-fa23-474e-b7be-f6c07b624351" />
 
-<img width="736" height="252" alt="1000023234" src="https://github.com/user-attachments/assets/20093b26-3c67-472c-89a3-eb7845ff1f57" />
+<img width="600" height="188" alt="1000023275" src="https://github.com/user-attachments/assets/e3944166-c463-40d2-98c4-5a5548d61c3e" />
 
 
 <div align="center">
