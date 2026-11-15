@@ -17,8 +17,7 @@
 
 ‎ . ݁⋆ ۶Introvert,, sx/spৎ ݁˖ . ݁
 
-<img width="735" height="356" alt="1000023260" src="https://github.com/user-attachments/assets/6c104c67-2977-4dde-9004-26a67ef4373a" />
-
+<img width="736" height="388" alt="1000023276" src="https://github.com/user-attachments/assets/03ed88d3-4cc5-4696-bcb9-8b1fcac0f470" />
 
 ༘⋆Main community: Typology(Maybe Genshin since my sis asked me to download Genshin again heh!1!),,⋆˚࿔
 
