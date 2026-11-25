@@ -3,34 +3,34 @@
 ━ ⏤͟͟͞͞𖥔⋅ ━━✶━━ ⋅𖥔⋅ ━╮
   <img width="20" height="20" alt="1000023209" src="https://github.com/user-attachments/assets/314af123-fa23-474e-b7be-f6c07b624351" />
 
-<img width="600" height="188" alt="1000023275" src="https://github.com/user-attachments/assets/e3944166-c463-40d2-98c4-5a5548d61c3e" />
+<img width="736" height="214" alt="1000023359" src="https://github.com/user-attachments/assets/ed6d5f69-792d-4503-85dc-e881251e9563" />
 
 
 <div align="center">
 
-<img width="36" height="36" alt="1000023249" src="https://github.com/user-attachments/assets/69b80979-f6b5-47a9-a989-75ff858b1fdd" /> .𖥔 ݁ ˖ Greetings, I'm Drawn, Or you could call me Wynn as well,⊹ ࣪ ˖
+<img width="36" height="36" alt="1000023353" src="https://github.com/user-attachments/assets/34341e3c-26dd-48dc-a72d-22f0817303cc" />
+ .𖥔 ݁ ˖ Greetings, I'm Drawn, Or you could call me Wynn as well,⊹ ࣪ ˖
 
-![APAFEM](https://img.shields.io/badge/APAFEM-8BAECB?style=flat)
-![Boundary Breaker DNI](https://img.shields.io/badge/Boundary%20Breaker%20DNI-⚠-C9DCD7?style=flat&labelColor=F5F7EF)
-![468](https://img.shields.io/badge/468-8386A4?style=flat)
-![4w3](https://img.shields.io/badge/4w3-ACC6C7?style=flat)
+![APAFEM](https://img.shields.io/badge/APAFEM-C3F8F0?style=flat)
+![Boundary Breaker DNI](https://img.shields.io/badge/Boundary%20Breaker%20DNI-⚠-80FAD1?style=flat&labelColor=FEFDFA)
+![468](https://img.shields.io/badge/468-7CD96F?style=flat)
+![4w3](https://img.shields.io/badge/4w3-50B19C?style=flat)
 
 ‎ . ݁⋆ ۶Introvert,, sx/spৎ ݁˖ . ݁
 
-<img width="736" height="300" alt="1000023276" src="https://github.com/user-attachments/assets/03ed88d3-4cc5-4696-bcb9-8b1fcac0f470" />
+<img width="636" height="300" alt="1000023348" src="https://github.com/user-attachments/assets/f256825b-f831-4234-9302-9a742114b5ee" />
 
-༘⋆Main community: Typology(Maybe Genshin since my sis asked me to download Genshin again heh!1!),,⋆˚࿔
 
-✚˚. ᵎᵎ Basic DNI criteria, ESPECIALLY THOSE UNBELIEVABLY RUDE PEOPLE, PLEASE STOP SPAMMING 'FAHH' INTO MY FACE,,ـــــــــﮩ٨ـ<img width="369" height="67" alt="1000023257" src="https://github.com/user-attachments/assets/ee8d28b9-a376-4091-8755-fc9c6e9d8042" />
+༘⋆Main community: Genshin n Typology,,⋆˚࿔
+
+✚˚. ᵎᵎ Basic DNI criteria, ESPECIALLY THOSE UNBELIEVABLY RUDE PEOPLE, PLEASE STOP SPAMMING 'FAHH' INTO MY FACE,,ـــــــــﮩ٨ـ<img width="36" height="36" alt="1000023352" src="https://github.com/user-attachments/assets/dcff706a-d2d7-46d5-a400-04f1023adcea" />
 
 
  𑣲ᢉ𐭩Im rlly shy so u need 2 int first(╥ ᴗ ╥),,Or I will when I'm feelin bold,,𓏵
 
 ✧˚ We romanticize the stars, but forget the dark is what made them visible, ⋆｡˚ 
 
-˗ˏˋ⌖Ily Flins but Alyosha r growing on me>﹏<་⁺₊♡ <img width="36" height="36" alt="1000023256" src="https://github.com/user-attachments/assets/9d43e358-0f33-45d6-acb9-1c78790420c0" />
-
-<img width="736" height="171" alt="1000023232" src="https://github.com/user-attachments/assets/97959621-50d3-4a76-b614-1521328a3322" />
+<img width="736" height="214" alt="1000023360" src="https://github.com/user-attachments/assets/2a1fdce0-7f37-4374-989f-cbfcef20c452" />
 
 
 <img width="20" height="20" alt="1000023208" src="https://github.com/user-attachments/assets/3f96189a-25e0-4bb1-8056-157e2f0aa06c" />
