@@ -13,7 +13,7 @@
 
 ![APAFEM](https://img.shields.io/badge/APAFEM-39A887?style=flat)
 ![Boundary Breaker DNI](https://img.shields.io/badge/Boundary%20Breaker%20DNI-⚠-48A463?style=flat&labelColor=FDFFFE)
-![468](https://img.shields.io/badge/468-1F8184?style=flat)
+![468](https://img.shields.io/badge/469-1F8184?style=flat)
 ![4w3](https://img.shields.io/badge/4w3-18244A?style=flat)
 
 ‎ . ݁⋆ ۶Introvert,, sx/spৎ ݁˖ . ݁
