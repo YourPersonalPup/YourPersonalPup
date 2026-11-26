@@ -3,35 +3,34 @@
 ━ ⏤͟͟͞͞𖥔⋅ ━━✶━━ ⋅𖥔⋅ ━╮
   <img width="20" height="20" alt="1000023209" src="https://github.com/user-attachments/assets/314af123-fa23-474e-b7be-f6c07b624351" />
 
-<img width="736" height="214" alt="1000023359" src="https://github.com/user-attachments/assets/ed6d5f69-792d-4503-85dc-e881251e9563" />
+<img width="736" height="314" alt="1000023369" src="https://github.com/user-attachments/assets/deb743f5-7f56-4d3a-ba19-f5199bb7f9a7" />
 
 
 <div align="center">
 
-<img width="36" height="36" alt="1000023353" src="https://github.com/user-attachments/assets/34341e3c-26dd-48dc-a72d-22f0817303cc" />
+<img width="36" height="36" alt="1000023371" src="https://github.com/user-attachments/assets/22af5c16-bf34-469b-a899-88f54e8fb955" />
  .𖥔 ݁ ˖ Greetings, I'm Drawn, Or you could call me Wynn as well,⊹ ࣪ ˖
 
-![APAFEM](https://img.shields.io/badge/APAFEM-C3F8F0?style=flat)
-![Boundary Breaker DNI](https://img.shields.io/badge/Boundary%20Breaker%20DNI-⚠-80FAD1?style=flat&labelColor=FEFDFA)
-![468](https://img.shields.io/badge/468-7CD96F?style=flat)
-![4w3](https://img.shields.io/badge/4w3-50B19C?style=flat)
+![APAFEM](https://img.shields.io/badge/APAFEM-39A887?style=flat)
+![Boundary Breaker DNI](https://img.shields.io/badge/Boundary%20Breaker%20DNI-⚠-48A463?style=flat&labelColor=FDFFFE)
+![468](https://img.shields.io/badge/468-1F8184?style=flat)
+![4w3](https://img.shields.io/badge/4w3-18244A?style=flat)
 
 ‎ . ݁⋆ ۶Introvert,, sx/spৎ ݁˖ . ݁
 
-<img width="636" height="300" alt="1000023348" src="https://github.com/user-attachments/assets/f256825b-f831-4234-9302-9a742114b5ee" />
+<img width="600" height="300" alt="1000023374" src="https://github.com/user-attachments/assets/bb9e9f15-ba11-42b9-bf45-e9ad9b23ad68" />
 
 
 ༘⋆Main community: Genshin n Typology,,⋆˚࿔
 
-✚˚. ᵎᵎ Basic DNI criteria, ESPECIALLY THOSE UNBELIEVABLY RUDE PEOPLE, PLEASE STOP SPAMMING 'FAHH' INTO MY FACE,,ـــــــــﮩ٨ـ<img width="36" height="36" alt="1000023352" src="https://github.com/user-attachments/assets/dcff706a-d2d7-46d5-a400-04f1023adcea" />
+✚˚. ᵎᵎ Basic DNI criteria, ESPECIALLY THOSE UNBELIEVABLY RUDE PEOPLE, PLEASE STOP SPAMMING 'FAHH' INTO MY FACE,,ـــــــــﮩ٨ـ<img width="36" height="36" alt="1000023372" src="https://github.com/user-attachments/assets/091f59a8-a44b-4e62-8511-0912401d900f" />
 
 
  𑣲ᢉ𐭩Im rlly shy so u need 2 int first(╥ ᴗ ╥),,Or I will when I'm feelin bold,,𓏵
 
-✧˚ We romanticize the stars, but forget the dark is what made them visible, ⋆｡˚ 
+✧˚ Call him Mr,, Raider, Call him Mr,, Wrong, Call him Mr,, Vain!!, ( ˶°ㅁ°) !! ⋆｡˚ 
 
-<img width="736" height="214" alt="1000023360" src="https://github.com/user-attachments/assets/2a1fdce0-7f37-4374-989f-cbfcef20c452" />
-
+<img width="736" height="214" alt="1000023373" src="https://github.com/user-attachments/assets/640ba76c-63ac-430d-88cc-53cbd1d8dc91" />
 
 <img width="20" height="20" alt="1000023208" src="https://github.com/user-attachments/assets/3f96189a-25e0-4bb1-8056-157e2f0aa06c" />
 ╰━ ⋅𖥔⋅ ━━✶━━ ⏤͟͟͞͞𖥔⋅ ━ 
